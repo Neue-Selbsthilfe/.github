@@ -1,4 +1,6 @@
-# Wirksam für die Selbsthilfe
+# **Wirksam** für die Selbsthilfe
+
+Unser Komplett-Paket sind mehr als nur Digitalisierung für Selbsthilfe-Kontaktstellen. Mehr als eine Internetseite. Mehr als eine App. **Wir haben das Update für die Selbsthilfe! **
 
 ## Unsere Vision und Mission
 
